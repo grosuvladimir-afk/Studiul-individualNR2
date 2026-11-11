@@ -1,0 +1,1 @@
+# Studiul-individualNR2
